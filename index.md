@@ -36,6 +36,41 @@ Escribir un eBook lleva tiempo y esfuerzo, pero con determinación y un enfoque 
 
 ---
 
+Recuerdo que mi padre me enseño sobre la Hipocrecia. 
+
+En una ocasión habia bajado a desayunar, y entonces vino el servicio del gas, mi papá me pidio que fuera por dinero para pagarle al gas, yo le dije que estaba desayunado, no pensaba levantarme hasta terminar mi deseyuno, y el me dijo.
+
+- Buneo que paso con el dinero.
+
+Yo dije:
+
+- Hasta que termine de desayunar
+- Quieres que le diga al del gas que te espere a que termines de desayunar para que le pague.
+
+Dije yo.
+
+Si pensaba pararme para ir por le dinero, pero me parece injusto que que si ve que estoy comineod me interrupa para que vaya por dinero, y siempre he entendido que los servicios de la casa son importantes, solo le pedi algo de tiempo para dedicarmelo a comer
+
+Y porque digo que es hipocrita, es porque unos años más tarde mi mamá se levanto a tirar la basura y mi padre dijo
+
+- Lo importante es desayunar.
+
+Yo que siempre definedo a mi mamá le dije
+
+- Si tan solo alguien la ayudara.
+
+El respondio
+
+- Y yo tambien deje de desyunar para ayudarla.
+
+- Así es como debe de ser. Yo dije
+- Cuando una vez me pediste 
+
+
+
+
+---
+
 
 ## Sobre el autor.
 
